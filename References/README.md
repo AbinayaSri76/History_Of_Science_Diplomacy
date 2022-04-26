@@ -21,3 +21,7 @@
 <https://www.gov.uk/world/organisations/uk-science-innovation-network-in-india>
 
 <https://www.gov.uk/government/publications/prime-minister-boris-johnsons-visit-to-india-april-2022-uk-india-joint-statements/uk-india-joint-statement-april-2022-towards-shared-security-and-prosperity-through-national-resilience>
+
+<https://youtu.be/NiVVRSMMTHY>
+
+<https://m.economictimes.com/news/science/view-indias-science-diplomacy-could-take-centre-stage-in-2021/articleshow/80758439.cms>
