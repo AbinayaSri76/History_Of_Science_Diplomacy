@@ -34,3 +34,11 @@
 - <https://www.wilsoncenter.org/blog-post/indias-department-atomic-energy-page-history>
 - <https://www.isro.gov.in/launchers/isro%E2%80%99s-scramjet-engine-technology-demonstrator-successfully-flight-tested>
 - https://www.tutorialspoint.com/fundamentals_of_science_and_technology/science_and_technology_policy_in_india.htm
+- <https://www.indiatoday.in/magazine/cover-story/story/20161226-india-today-41st-anniversary-science-technology-progress-830064-2016-12-15>
+- <https://www.policybazaar.com/health-insurance/general-info/articles/a-glance-at-the-evolution-of-health-insurance-in-india/>
+- <https://www.indiatoday.in/india-today-insight/story/the-inside-story-of-india-s-medical-diplomacy-1691660-2020-06-22>
+- <https://www.isro.gov.in/launchers/isro%E2%80%99s-scramjet-engine-technology-demonstrator-successfully-flight-tested>
+- <https://byjus.com/free-ias-prep/isro/>
+- <https://lotusarise.com/nuclear-energy-in-india-for-upsc/>
+- <http://www.ipcs.org/comm_select.php?articleNo=5300>
+- <https://www.tutorialspoint.com/fundamentals_of_science_and_technology/science_and_technology_policy_in_india.htm>
