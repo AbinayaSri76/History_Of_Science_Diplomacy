@@ -14,3 +14,22 @@
 - <https://youtu.be/NiVVRSMMTHY>
 - <https://m.economictimes.com/news/science/view-indias-science-diplomacy-could-take-centre-stage-in-2021/articleshow/80758439.cms>
 - <https://www.livehistoryindia.com/story/people/operation-shakti>
+- <https://nuclearweaponarchive.org/India/IndiaShakti.html>
+- <https://military-history.fandom.com/wiki/Pokhran-II>
+- <https://www.wilsoncenter.org/blog-post/indias-department-atomic-energy-page-history>
+- <https://www.thebetterindia.com/119136/the-fascinating-story-of-how-indias-first-indigenous-computers-were-built/>
+- <https://www.newsncr.com/national/first-super-computer-when-america-refused-to-give-india-made-its-own-super-computer-read-the-full-story/>
+- <https://en.wikipedia.org/wiki/PARAM>
+- <https://www.thebetterindia.com/82076/india-first-supercomputer-param-cdac-vijay-bhatkar/>
+- <https://en.wikipedia.org/wiki/TIFRAC>
+- <https://timesofindia.indiatimes.com/business/india-business/what-went-into-building-tifrac-indias-first-computer/articleshow/89163805.cms>
+- <https://www.computer.org/csdl/magazine/an/2015/01/man2015010024/13rRUypp59J>
+- <https://www.drishtiias.com/to-the-points/paper3/green-revolution-1>
+- <https://www.thoughtco.com/green-revolution-overview-1434948>
+- <https://www.ndtv.com/india-news/smiling-buddha-all-you-need-to-know-about-indias-first-nuclear-test-at-pokhran-2230645>
+- <https://www.atomicarchive.com/history/cold-war/page-17.html>
+- <https://www.wikiwand.com/en/Department_of_Atomic_Energy_(India)>
+- <https://economictimes.indiatimes.com/news/defence/how-smiling-buddha-caught-us-off-guard-in-1974/success-of-smiling-buddha/slideshow/58276903.cms>
+- <https://www.hindustantimes.com/india-news/smiling-buddha-how-india-successfully-conducted-first-nuclear-test-in-pokhran-101621301524390.html>
+- <https://www.wilsoncenter.org/blog-post/indias-department-atomic-energy-page-history>
+- 
