@@ -33,3 +33,4 @@
 - <https://www.hindustantimes.com/india-news/smiling-buddha-how-india-successfully-conducted-first-nuclear-test-in-pokhran-101621301524390.html>
 - <https://www.wilsoncenter.org/blog-post/indias-department-atomic-energy-page-history>
 - <https://www.isro.gov.in/launchers/isro%E2%80%99s-scramjet-engine-technology-demonstrator-successfully-flight-tested>
+- https://www.tutorialspoint.com/fundamentals_of_science_and_technology/science_and_technology_policy_in_india.htm
