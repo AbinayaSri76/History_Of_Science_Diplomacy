@@ -6,7 +6,6 @@ Even though we say it’s a part of “new diplomacy,” forms of science diplom
 In this report, we elaborated, with the help of research papers and articles, the achievements and policies drafted by India with other countries since the beginning of science diplomacy to the present.
 
 <br>
------
 <br>
 This report is a part of project work  entitled “TRACING THE HISTORY OF SCIENCE DIPLOMACY OF INDIA” by 
 
